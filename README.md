@@ -1,0 +1,1 @@
+# notlar ve notlarım
